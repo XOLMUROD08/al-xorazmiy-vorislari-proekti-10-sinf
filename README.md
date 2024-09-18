@@ -1,0 +1,1 @@
+# al-xorazmiy-vorislari-proekti-10-sinf
